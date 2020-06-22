@@ -8,8 +8,8 @@ The other Mainzelmännchen are Anton, Berti, Conny, Edi and Fritzchen.
 * Very clever
 * Weares a white stocking cap
 
-Det don't say much, The only thing he says is
+Det doesn't say much, the only thing he says is
 > Guuudn N'Aaabend!
-> (Gooood 'Vning in English)
+> (Goooodie 'Vning in English)
 
 <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/1/15/Wolf_Gerlach_Mainzelmaennchen_Bad_Zwischenahn.jpg/682px-Wolf_Gerlach_Mainzelmaennchen_Bad_Zwischenahn.jpg"/>
