@@ -7,3 +7,7 @@ The other Mainzelmännchen are Anton, Berti, Conny, Edi and Fritzchen.
 * Chief of Mainzelmännchen
 * Very clever
 * Weares a white stocking cap
+
+Det don't say much, The only thing he says is
+> Guuudn N'Aaabend!
+> (Gooood 'Vning in English)
